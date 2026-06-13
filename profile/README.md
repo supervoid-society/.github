@@ -1,1 +1,1 @@
-previously Ahmeng Labs.
+_Nihilism is a philosophical belief that life has no inherent meaning, purpose, or intrinsic value. Originating from the Latin word nihil (meaning "nothing"), it asserts that objective truth and moral principles are human constructs rather than universal realities._
